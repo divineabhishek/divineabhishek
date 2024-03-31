@@ -1,6 +1,6 @@
 - 👋 Hey, Here's Abhishek Tiwari
 - 👀 I’m interested in building and applying it( Ecofriendly Projects Related to world) on our society to build a liveable world.Many Social, Technological and Community Topics I'm interested in to speak and create it for people benifits.
-- 🌱 I’m currently learning B.Tech Computer Science and Engineering
+- 🌱 I’m currently pursuing B.Tech Computer Science and Engineering
 - 💞️ I’m looking to collaborate on above interested topic and any other topic which is helpful for society.
 - 📫 How to reach me ... through Mobile Number 8577867993 or my social media accounts i.e https://www.linkedin.com/in/abhishek-tiwari-57ba20283
 - https://instagram.com/abhishek2809tiwari?utm_source=qr&igshid=MzNlNGNkZWQ4Mg%3D%3D
